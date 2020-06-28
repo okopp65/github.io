@@ -6,3 +6,4 @@ Gandalf, also known as Mithrandir in the elvish language, was a mighty sorcerer 
 * Has a grumpy disposition
 * Throws magic around
 > You will not pass!!!
+<img src=https://www.finews.ch/images/cache/4b51659c820ec90e7ebfa3338cae50cc_w500_h300_cp.jpg"/>
